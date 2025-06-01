@@ -1,2 +1,1 @@
-# Ustudy-narmativlar-
 # NarmativUstudy
